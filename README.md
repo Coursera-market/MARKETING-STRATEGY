@@ -1,1 +1,1 @@
-## MARKETING-STRATEGY ➡️ [CLICK TO JOIN DISCUSSION COMMUNITY FORUM](https://chat.whatsapp.com/CeGTt42JaQiLvaZxxRz3Y9?mode=r_c)
+## MARKETING-STRATEGY ➡️ [CLICK TO JOIN DISCUSSION COMMUNITY FORUM](https://chat.whatsapp.com/KLDAhGESJJd2oHeDI8Hqdb?mode=ac_t)
